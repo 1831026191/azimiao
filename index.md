@@ -1,1 +1,1 @@
-<a href:"www.loliacg.cn">loliacg</a>
+这是一个简介，供群众欣赏的。
